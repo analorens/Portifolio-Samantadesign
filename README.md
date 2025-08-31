@@ -1,6 +1,6 @@
-# 🌸 Portfólio Profissional – [Nome da Profissional]
+# 🌸 Portfólio Profissional – Samanta Santos
 
-Bem-vindo(a) ao portfólio de **[Nome da Profissional]**, uma profissional da beleza com mais de **10 anos de experiência** no mercado.  
+Bem-vindo(a) ao portfólio de **Samanta Santos**, uma profissional da beleza com mais de **10 anos de experiência** no mercado.  
 Ao longo de sua trajetória, construiu uma carreira sólida baseada em dedicação, cuidado e atenção aos detalhes, sempre buscando valorizar a autoestima e realçar a beleza única de cada cliente.  
 
 ---
